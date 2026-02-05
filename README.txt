@@ -1,2 +1,1 @@
-versi mantap 
-versi gahul 
+versi apa lgi 
